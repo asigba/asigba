@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @asigba
+- 👋 Hi, I’m Alex
 - 📫 How to reach me: here
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: hawaiin pizza is underrated
